@@ -1,1 +1,1 @@
-# studyng
+# studying
